@@ -8,7 +8,7 @@
 
 - 💬 Ask me about *I’m a confident individual*
 
-- 📫 How to reach me *msd7ravis@gmail.com*.com*
+- 📫 How to reach me *msd7ravis@gmail.com*.com
 
 - ⚡ Fun fact *I am funny😇*
 
